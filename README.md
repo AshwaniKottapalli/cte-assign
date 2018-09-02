@@ -1,24 +1,24 @@
-Mafia 3
-fifa
-dota2
-cs go
-one punch man
-oldboy
-la vita le beautiful
-bekas
-harry potter
-sacred games
-pitchers
-life of pi
-stree
-arjun reddy
-jane tu ya jane na
-love you zindagi
-roadies
-splitsvilla
-love school
-kyunki saas bhi kabhi bahu thi
-pavitra rishta
-kai po che
-guru
+Mafia 3  -Ashwani
+fifa  -Ashwani
+dota2  -Ashwani
+cs go  -Ashwani
+one punch man  -Ashwani
+oldboy  -Ashwani
+la vita le beautiful  -Ashwani
+bekas  -Ashwani
+harry potter  -Ashwani
+sacred games  -Ashwani
+pitchers  -Ashwani
+life of pi  -Ashwani
+stree  -Ashwani
+arjun reddy  -Ashwani
+jane tu ya jane na  -Ashwani
+love you zindagi  -Ashwani
+roadies -Ashwani
+splitsvilla  -Ashwani
+love school  -Ashwani
+kyunki saas bhi kabhi bahu thi  -Ashwani
+pavitra rishta  -Ashwani
+kai po che  -Ashwani
+guru  -Ashwani
 
