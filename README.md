@@ -1,4 +1,4 @@
-# Group no. 5 Assignment:
+d# Group no. 5 Assignment:
 * GOT ~shubham
 * Brooklyn 9-9 ~shubham
 * Rick and Morty ~shubham
@@ -46,4 +46,24 @@
 * pavitra rishta  -Ashwani
 * kai po che  -Ashwani
 * guru  -Ashwani
-
+* death note -drumil
+* big bang theory -drumil
+* vikings - drumil
+* young sheldon -drumil
+* game of thrones -drumil
+* crazy,stupid,love -drumil
+* narcos -drumil
+* scorpion -drumil
+* naruto -drumil
+* pokemon -drumil
+* dragon ball z -drumil
+* flash -drumil
+* how i met your mother -drumil
+* old school -drumil
+* bully -drumil
+* cs 1.6 -drumil
+* max payne 2 -drumil
+* table tennis -drumil
+* porus -drumil
+* fear files -drumil
+* gta san andreas -drumil
