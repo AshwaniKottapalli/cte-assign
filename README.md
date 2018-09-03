@@ -19,4 +19,8 @@
 * The Flash ~shubham
 * Narcos ~shubham
 * Billions ~shubham
+* Curb your enthusiasm ~arush
+* Breaking Bad ~arush
+* Homeland ~arush
+* Better Call Saul ~arush
 
